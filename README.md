@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DakonienT
+- 👀 I’m interested in Electronics, programation, drones, CAD, ...
+- 🌱 I’m currently learning aeronautics
